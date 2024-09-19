@@ -13,3 +13,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 
 00001106714337sp@al.educacao.sp.gov.br
+
+![](https://media.tenor.com/Sqxz1B5v_tgAAAAM/rogergudes-rg123.gif)
